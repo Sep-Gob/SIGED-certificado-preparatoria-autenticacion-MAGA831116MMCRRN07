@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAGA831116MMCRRN07
+MAGA831116MMCRRN07
